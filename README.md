@@ -1,1 +1,1 @@
-# gorkhali-nterprises-
+# gorkhali-enterprises-
